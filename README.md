@@ -17,7 +17,9 @@
 /~58423bH72w~:/
 链接：https://pan.quark.cn/s/0d502be9f165
 
-**通用软件包** ：链接:https://pan.baidu.com/s/1ppEsu3i75FwicZrGbQfMHQ?pwd=eqjj 提取码:eqjj 复制这段内容后打开百度网盘手机App，操作更方便哦
+**通用软件包** ：我用夸克网盘给你分享了「IAR_ARM」，点击链接或复制整段内容，打开「夸克APP」即可获取。
+/~91283bHh9H~:/
+链接：https://pan.quark.cn/s/4507214d87f5
 
 # 联系作者
 
